@@ -24,6 +24,6 @@ I'm passionate about starting a unique YouTube channel focusing on mental challe
 
 ### 📫 How to Reach Me
 - **Email**: [furquanhumas@gmail.com](mailto:furquanhumas@gmail.com)
-- **LinkedIn**: [Humas Furqan](https://www.linkedin.com/in/humas-furqan-7b2961216/)
+- **LinkedIn**: [Humas Furqan](https://www.linkedin.com/in/humas-furquan-7b2961216/)
 
 Thanks for stopping by! Feel free to reach out if you're interested in collaborating or chatting about tech, projects, or ideas!
